@@ -1,3 +1,3 @@
-it's @b0rk-k.
+it's @b0ro-k.
 
 the only true krajinan on github.
